@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ExtremleyStinkyMonke
+- 👀 I’m interested in gorilla tag mods.
+- 🌱 I’m currently learning gorilla tag.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me, you dont.
